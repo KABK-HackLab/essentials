@@ -1,1 +1,1 @@
-Essentials for burhsing your teeth 
+Essentials for brushing your teeth 
